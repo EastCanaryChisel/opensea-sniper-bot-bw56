@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with elite opensea sniper bot | price-impact-analysis + NFT-sniping. Featuring price-impact-analysis and NFT-sniping, it's the best choice for
 
 
 
